@@ -1,1 +1,5 @@
 ![image](https://github.com/workwithHasnain/MAD-S24-LabOne/assets/79682339/a35895ee-f0d1-4ba4-8279-d9362aeeb032)
+![t4](https://github.com/workwithHasnain/MAD-S24-LabOne/assets/79682339/3d377768-7468-473f-ba38-fee2412dd4bd)
+![t3](https://github.com/workwithHasnain/MAD-S24-LabOne/assets/79682339/9317ae56-291a-461a-a006-ecc6c70966b9)
+![t2](https://github.com/workwithHasnain/MAD-S24-LabOne/assets/79682339/1f3aed81-1e19-487c-88d1-7e11454a4dc8)
+![t1](https://github.com/workwithHasnain/MAD-S24-LabOne/assets/79682339/a58261ca-b34a-4312-81ae-b88083c1d49c)
